@@ -5,3 +5,4 @@ https://share.google/aimode/MhyTBzRTcXjIRNzeB
 
 ## Reference:
 http://www.potteryhistories.com/page58.html
+https://digitalfire.com/material/kaolin
